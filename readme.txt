@@ -1,0 +1,1 @@
+We collaborated on some of the parts and did the other parts separately, later joining our files together.
